@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ming
+- 👀 I’m interested in deft tones, guitar and swimming
+- 🌱 I’m currently learning how to give head
+- 📫 How to reach me ( ! ming 8451)
